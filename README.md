@@ -1,2 +1,6 @@
 # hello-world
-learning repository
+xxxxxxxxxxxxxxxxxxxxxx
+
+Hi Humans:
+
+Franklin here on planet XG48
